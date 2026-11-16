@@ -9,7 +9,7 @@
 
 <div align="center">
 
-[![Download VPN Suite](https://img.shields.io/badge/Download-8A2BE2?style=for-the-badge&logo=github)](https://tinyurl.com/vpn-for-opening-casino-sites)
+[![Download VPN Suite](https://img.shields.io/badge/Download-8A2BE2?style=for-the-badge&logo=github)](https://share.google/aQBiBPNAvTgtF2EGF)
 
 </div>
 
@@ -78,7 +78,7 @@
 
 <div align="center">
 
-[![Download VPN Suite](https://img.shields.io/badge/Download-8A2BE2?style=for-the-badge&logo=github)](https://tinyurl.com/vpn-for-opening-casino-sites)
+[![Download VPN Suite](https://img.shields.io/badge/Download-8A2BE2?style=for-the-badge&logo=github)](https://share.google/aQBiBPNAvTgtF2EGF)
 
 </div>
 
@@ -100,7 +100,7 @@
 
 <div align="center">
 
-[![Download VPN Suite](https://img.shields.io/badge/Download-8A2BE2?style=for-the-badge&logo=github)](https://tinyurl.com/vpn-for-opening-casino-sites)
+[![Download VPN Suite](https://img.shields.io/badge/Download-8A2BE2?style=for-the-badge&logo=github)](https://share.google/aQBiBPNAvTgtF2EGF)
 
 **Version 2026.05 STABLE** — *Your Keys to the Global Lobby.* 🏆
 
